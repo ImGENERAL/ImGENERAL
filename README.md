@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Morrre Python
 - 💞️ I’m looking to collaborate on new projects
 - 📫 How to reach me
-Discord : Sultan.#0001
+Discord : S.ultan
 Email : 14551sultan@gmail.com
 
 <!---
